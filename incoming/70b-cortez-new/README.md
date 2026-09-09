@@ -1,1 +1,0 @@
-# 70b-cortez-new
